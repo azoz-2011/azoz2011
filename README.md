@@ -13,3 +13,5 @@ https://s118-mlut.freeconvert.com/task/68673c983680bcd8f057e514/MSKAT_50_aln9em.
 https://cdn.discordapp.com/attachments/1367921172238307572/1389808729636995093/land_cruiser_j100.zip?ex=6869437e&is=6867f1fe&hm=9d41dbc6ead2dccf89580a15706effac352b0e185848c2b481f8edf5b9a06dde&
 ماب عثيم السلي 
 https://modsfire.com/yn28usVMcPqaxTt
+ماب توكسيك 
+https://www.beamng.com/resources/toxic-sand-dunes.28097/
